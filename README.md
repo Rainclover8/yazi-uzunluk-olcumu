@@ -1,0 +1,1 @@
+- https://rainclover8.github.io/yazi-uzunluk-olcumu/
